@@ -15,4 +15,8 @@ just for the protocol: in this game you are jumping from the recoil of bullets.
 
 
 
+https://user-images.githubusercontent.com/78926043/181251957-86940b45-f646-45a2-ae9a-c8fb2a0eb451.mp4
+
+
+
 
